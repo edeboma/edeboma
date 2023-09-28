@@ -1,4 +1,4 @@
-![Cat gif](intense cat.webp)
+![Cat gif](intensecat.webp)
 
 # Emily Deboma
 
