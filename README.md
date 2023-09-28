@@ -19,13 +19,13 @@
 - Barista for 10 years
 
 ## Currently Obsessed With
-Bauhaus
-Crochet
-Legend of Zelda, Tears of the Kingdom
+- Bauhaus
+- Crochet
+- Legend of Zelda, Tears of the Kingdom
 
 ## My Links
 - [Instagram]()
 
 ## Department of Design
-- [Department of Design](https://www.ewu.edu/cstem/design/)
+- [EWU Design](https://www.ewu.edu/cstem/design/)
 
