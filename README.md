@@ -25,5 +25,7 @@ Legend of Zelda, Tears of the Kingdom
 
 ## My Links
 - [Instagram]()
-- 
+
+## Department of Design
+- [Department of Design](https://www.ewu.edu/cstem/design/)
 
