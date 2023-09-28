@@ -1,8 +1,8 @@
-![Cat gif](https://media.giphy.com/media/dYoceNWjX7qes/giphy.gif)
+![Cat gif](intense cat.webp)
 
 # Emily Deboma
 
-> 
+> pull quote
 
 ## Major
 **BDes** _Visual Communication Design_ at Eastern Washington University
